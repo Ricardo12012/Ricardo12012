@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... English
 - 💞️ I’m looking to collaborate on ... I do not know
 - 📫 How to reach me ... Discord
-- 😄 Pronouns: He, His
+- 😄 Pronouns: He. His
 - ⚡ Fun fact: I like play The Binding of Isaac Repentance... but only when I win
 
 <!---
