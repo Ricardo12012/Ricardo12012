@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ricardo12012
+- 👋 Hi, I’m Ricardo
 - 👀 I’m interested in ... Games
 - 🌱 I’m currently learning ... English
 - 💞️ I’m looking to collaborate on ... I do not know
